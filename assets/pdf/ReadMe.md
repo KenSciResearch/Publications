@@ -1,1 +1,0 @@
-PDF of publications
